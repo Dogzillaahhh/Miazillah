@@ -2,7 +2,7 @@ HELLOOOO
 
 :: I love movies & series like ALOT , my favorites aree..↓
 
-The walking dead, Supernatural, The Accidental Husband,Peace Love & Misunderstanding,Shanghai,The Courier...thats it!!
+The walking dead, Supernatural, & The Losers!! ok bye
 
 :: These are the skins you might see me in !! ↓
 
